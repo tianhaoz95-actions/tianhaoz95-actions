@@ -1,1 +1,1 @@
-# Actions by @tianhaoz95
+# Actions by [@tianhaoz95](https://github.com/tianhaoz95)
